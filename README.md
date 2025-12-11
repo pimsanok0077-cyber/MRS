@@ -1,3 +1,3 @@
 # MRS
 The medical records
-อยากทำอะไรก็ทำ โตละ
+Pimchanok mit.2
